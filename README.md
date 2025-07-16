@@ -10,7 +10,7 @@ krillket 𓉸 any prns ⋆
 
 i dont fuck with proshippers 
 or anything that stands for it!
-if your one and on my page keep your self safe💖
+if your one and on my page Keep Your Self safe💖
 
 hate me 'cause I'm beautiful?
 bitch, i don't like you either!
