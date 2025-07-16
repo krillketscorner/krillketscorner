@@ -8,6 +8,10 @@ krillket 𓉸 any prns ⋆
 
 18+ to add ᯓ★ c+h ✓
 
+i dont fuck with proshippers 
+or anything that stands for it!
+if your one and on my page keep your self safe💖
+
 hate me 'cause I'm beautiful?
 bitch, i don't like you either!
 
